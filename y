@@ -1,4 +1,1 @@
-ssssssssss
-FFFF
-CCC
 
